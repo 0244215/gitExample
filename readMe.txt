@@ -1,1 +1,1 @@
-Please teacher I wanna a 100 not a 1
+Please teacher I wanna 100 not a 10
